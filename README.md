@@ -1,0 +1,2 @@
+# soloshoppingmall
+solo
